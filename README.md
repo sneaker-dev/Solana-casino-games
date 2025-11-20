@@ -2,7 +2,7 @@
 
 # Contact
 
-Telegram: [Pioneer](https://t.me/hi_3333)
+Telegram: [Pioneer](https://t.me/DaniltsevOleksandr)
 
 My Casino game project went live!
 Let's play GGSOLio game in https://ggsol.io
